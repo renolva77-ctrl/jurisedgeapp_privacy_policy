@@ -1,0 +1,1 @@
+# jurisedgeapp_privacy_policy
